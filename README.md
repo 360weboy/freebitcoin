@@ -1,12 +1,6 @@
 如何免费获得比特币？
 ===========
 
----
-Zillat: http://www.dwz.cn/zillat  
-欢乐95: http://www.dwz.cn/huanle95
----
-
-
 ### 免费获取比特币的站点
 
 * [Zillat](http://www.dwz.cn/zillat)
